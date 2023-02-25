@@ -1,4 +1,4 @@
 - Hi, I’m Joseph Bowman, a games desighn stuent that has a facination with anything and everything to do with games and code.
 - I’m interested in pretty much aeverything that has to do with computers.
-- I’m currently learning Game Desigh in college.
+- I’m currently learning Game Design in college.
 - You can reach me at 2300082JB@gmail.com.
